@@ -1,4 +1,4 @@
-#  
+#  Experience sailor piece like never before with hidden Scripts for sailor piece, the #1 Script. Includes no cooldown and god mode for unbeatable
 
 
 
